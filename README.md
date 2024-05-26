@@ -1,2 +1,0 @@
-# POORVI
-author: Sikha
